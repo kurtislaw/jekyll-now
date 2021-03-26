@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-i like computers and music. oh and also johns apparently.
+i like computers and music. oh but also mountain goats apparently.
 
 
 ### Contact me
