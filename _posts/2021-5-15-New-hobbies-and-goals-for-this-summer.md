@@ -2,10 +2,9 @@
 layout: post
 title: Goals for this summer and new hobbies
 ---
+5 days ago marked the official end to my IB diploma (at least all the work that I had to do to receive my diploma) and also hopefully the start to a wonderful summer. Since this is most likely the last summer where I will have no internships, work or big exams to study for, it means that it will likely be the last summer where I can do whatever I want. 
 
 # Goals for this summer
-
-5 days ago marked the official end to my IB diploma (at least all the work that I had to do to receive my diploma) and also hopefully the start to a wonderful summer. Since this is most likely the last summer where I will have no internships, work or big exams to study for, it means that it will likely be the last summer where I can do whatever I want. 
 
 SO, in order to make this summer more productive, I'm going to write down a list of things that I want to do before September, where first year of university starts.
 
